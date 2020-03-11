@@ -16,4 +16,7 @@ mint chocolate chip mochi ice cream
 root beer
 
 # My favorite thing to do when I`m bored is
-binge anime
+binge anime and memes
+
+![image](https://user-images.githubusercontent.com/59803854/76456768-90e67f00-63a5-11ea-8a2c-00f31f5e25c2.jpg)
+
